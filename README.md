@@ -19,7 +19,7 @@
 
 - 💬 Ask me about **My business**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/e/2PACX-1vRjNAKwxeT-W7qnmGoH4pWA8qHsz55nkj8U3HSOgSR1SapI3P_gwGf1FUWmr-OKVhDztdVial13QmdK/pub](https://docs.google.com/document/d/e/2PACX-1vRjNAKwxeT-W7qnmGoH4pWA8qHsz55nkj8U3HSOgSR1SapI3P_gwGf1FUWmr-OKVhDztdVial13QmdK/pub)
+- 📄 Know about my experiences 
 
 - ⚡ Fun fact **I like to make video content**
 
